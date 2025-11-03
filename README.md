@@ -82,6 +82,7 @@ Ihr benötgt ein riesieges Propaganda Instrument das ohne jegliche Vorstellung v
   - [Nius](https://de.wikipedia.org/wiki/Nius)
   - [Berliner Zeitung](https://de.wikipedia.org/wiki/Berliner_Zeitung)
 
+- [Deutschlandkurier](https://deutschlandkurier.de/)
 - Neue Züricher Zeitung
   - https://de.wikipedia.org/wiki/Neue_Z%C3%BCrcher_Zeitung
   - https://www.nzz.ch/deutschland
