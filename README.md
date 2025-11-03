@@ -107,7 +107,7 @@ Bereichert euch an den Ideen von Deleuze und Guattari. Etabliert Diskursmuster, 
 
 ## Regel Nummer 7: Bleibt Anonym
 
-Solange das Problem lediglich in der Statistik existiert und jedoch keine konkreten Gesichter und Namen damit verbunden werden, kann in einer Gesellschaft, die ständig mit emotionalen Debatten abgelenkt ist, kein wirklicher Fokus auf euch fallen.
+Solange das Problem lediglich in den Zahlen existiert, auf die keiner achtet, und keine konkreten Gesichter, Namen und Geschichten mit euch verbunden werden können, kann in einer Gesellschaft, die ständig von emotionalen Debatten abgelenkt ist, kein wirklicher Fokus auf euch fallen.
 
 Meidet das öffentliche Bild.
 Meidet Interviews.
