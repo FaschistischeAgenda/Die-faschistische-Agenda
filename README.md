@@ -78,8 +78,13 @@ Ihr benötgt ein riesieges Propaganda Instrument das ohne jegliche Vorstellung v
   - [Bild](<https://de.wikipedia.org/wiki/Bild_(Zeitung)>)
 
 - [Frank Gotthardt](<https://de.wikipedia.org/wiki/Frank_Gotthardt_(Unternehmer)>)
+
   - [Nius](https://de.wikipedia.org/wiki/Nius)
   - [Berliner Zeitung](https://de.wikipedia.org/wiki/Berliner_Zeitung)
+
+- Neue Züricher Zeitung
+  - https://de.wikipedia.org/wiki/Neue_Z%C3%BCrcher_Zeitung
+  - https://www.nzz.ch/deutschland
 
 Noch dazu eignen sich die selbst bestärkenden Algorithmen von sozialen Medien perfekt um eine differenzierte Auseinanderesetzung mit Themen zu unterbinden. Wie gesagt, die kritische Masse wird selber Energie aufwenden Propaganda zu verbreiten aber dabei komplett abgeschottet von der Realität ausserhalb ihrer Filterblase bleiben.
 
