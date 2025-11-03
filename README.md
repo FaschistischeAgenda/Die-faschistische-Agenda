@@ -198,10 +198,16 @@ Euer Reichtum und letztendlich auch ein Teil des Reichtums des Landes basieren a
 
 Es ist wichtig zu verstehen, dass dies nur das ausführende Fußvolk für eure Agenda ist. Zu jedem Zeitpunkt können diese Personen ausgetauscht werden, solange die Agenda weiterverfolgt wird.
 
+## National
+
 - [Alice Weidel](https://de.wikipedia.org/wiki/Alice_Weidel)
 - [Jens Spahn](https://de.wikipedia.org/wiki/Jens_Spahn)
-- [Sanae Takaichi](https://en.wikipedia.org/wiki/Sanae_Takaichi)
+- [Sarah Wagenknecht](https://de.wikipedia.org/wiki/Sahra_Wagenknecht)
+
+## International
+
 - [Donald Trump](https://en.wikipedia.org/wiki/Donald_Trump)
+- [Sanae Takaichi](https://en.wikipedia.org/wiki/Sanae_Takaichi)
 - [Benjamin Netanyahu](https://en.wikipedia.org/wiki/Benjamin_Netanyahu)
   - [UN Arrest Issue](https://news.un.org/en/story/2024/11/1157286)
 - [Putin](https://de.wikipedia.org/wiki/Wladimir_Wladimirowitsch_Putin)
