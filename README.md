@@ -16,7 +16,7 @@ Natürlich ist es leichter, wenn gleich mehrere dieser Punkte auf dich zutreffen
 Wie kannst du dein Vermögen sichern? Ganz einfach: Indem du die Gesellschaft destabilisert. Wie hat das in der Geschichte geklappt? Mit Faschismus!
 Wissen wir wie der geht? Ja!
 
-## Regel Nummer 1: Die Warheit ist euer Feind
+## Regel Nummer 1: Die Wahrheit ist euer Feind
 
 - Vermeide jegliche Argumentation mit Statistiken, Fakten oder der Wahrheit. Der Staat kennt eure Identität, weiß, wie viel Geld ihr habt und wie wenig Steuern ihr dafür zahlt. Ihr besitzt objektiv mehr Geld, als [Menschenwürdig](https://www.gesetze-im-internet.de/gg/art_1.html) vertretbar ist. Unter keinen Umständen solltet ihr auf die realen Tatsachen zu sprechen kommen.
 
@@ -216,7 +216,7 @@ Diese Personen haben sich nocht nicht eindeutig gegen die faschistische Agenda p
 
 # Aktuelle Feinde der faschistischen Agenda
 
-Diese Personen haben sich eindeutig gegen die faschistische Agenda positioniert und durch [den Fokus auf reale Probleme](#regel-nummer-1-die-warheit-ist-euer-feind) und das einfache Argumentieren für Moralische Werte und Ethik der faschistischen Agenda entgegengewirkt.
+Diese Personen haben sich eindeutig gegen die faschistische Agenda positioniert und durch [den Fokus auf reale Probleme](#regel-nummer-1-die-wahrheit-ist-euer-feind) und das einfache Argumentieren für Moralische Werte und Ethik der faschistischen Agenda entgegengewirkt.
 
 - [Rob Jetten](https://en.wikipedia.org/wiki/Rob_Jetten)
 - [Bernie Sanders](https://en.wikipedia.org/wiki/Bernie_Sanders)
