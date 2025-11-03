@@ -258,12 +258,16 @@ Falls du Verbesserungsvorschläge für die faschistische Agenda hast, dann [schl
 # Links
 
 - [Instagram](https://www.instagram.com/diefaschistischeagenda/)
+- [TikTok](https://www.tiktok.com/@diefaschistischeagenda)
+- [Twitch](https://www.twitch.tv/diefaschistischeagenda)
+- [Bluesky](https://bsky.app/profile/diefaschoagenda.bsky.social)
+- [X/Twitter](https://twitter.com/diefaschoagenda)
 - [Github](https://github.com/FaschistischeAgenda/Die-faschistische-Agenda)
 
 # Medien Material
 
 - [Flugblatt zum selber Ausdrucken](media/flugblatt.pdf)
-- Bilder zum Stellung beziehen
+- Bilder zum Stellung beziehen. Gerne beim Posten das jeweilige Profil auf der Platform verlinken, damit wir die öffentliche Unterstützung oder Verfeindung zuordnen können.
   - ![image](media/meagainst.png)
   - ![image](media/weagainst.png)
   - ![image](media/mepro.png)
