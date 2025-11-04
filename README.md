@@ -281,11 +281,14 @@ Diese Bewegungen und Organisationen sind gefährlich für die Agenda.
 - 20.1.2025: [Trumps zweite Amtszeit](https://de.wikipedia.org/wiki/Zweite_Pr%C3%A4sidentschaft_von_Donald_Trump)
 - Februar 2025: [Musk Empfiehlt AFD](https://www.youtube.com/watch?v=sBwci2n7T1g)
 - 23.2.2025: [Vorgezogene Bundestagswahl](https://de.wikipedia.org/wiki/Bundestagswahl_2025)
+- 05.06.2025: [Flaggendiskussion](https://www.bundestag.de/dokumente/textarchiv/2025/kw23-de-beflaggung-1083662)
 - 07.08.2025: [Rückzug Kandidatur Brosius-Gersdorf](https://www.tagesschau.de/kommentar/brosius-gersdorf-122.html)
 - September 2025: [US Aquisition von Tiktok](https://de.wikipedia.org/wiki/TikTok#Geschichte)
 - 16.09.2025: [UN Bericht zum Genozids Israels](https://www.ohchr.org/en/press-releases/2025/09/israel-has-committed-genocide-gaza-strip-un-commission-finds)
 - 13.10.2025: [Friedensgipfel Gaza](https://de.wikipedia.org/wiki/Gaza-Friedensgipfel_2025)
   - [Bundesregierung bezieht Pro-Israel Position](https://www.bundesregierung.de/breg-de/aktuelles/unterstuetzung-israel-2228198) Worte wie Genozid oder Völkermord bleiben aus.
+- 16.10.2026: [Zusammenarbeit AFD CDU](https://www.zeit.de/news/2025-10/16/streit-um-annaeherung-an-afd-flammt-in-brandenburg-auf)
+  - [Woidke](https://www.tagesschau.de/inland/regional/brandenburg/rbb-woidke-macht-klare-ansagen-fuer-eine-moegliche-zusammenarbeit-mit-der-afd-100.html)
 - 31.10.2025: [Bekanntwerdung Absprache Israel & Deutschland](https://www.stern.de/politik/deutschland/waffen-fuer-israel--hat-die-regierung-nur-die-halbe-wahrheit-gesagt--36171758.html)
   - [Dropsite Quelle](https://www.dropsitenews.com/p/exclusive-germany-coordinated-icj-testimony-israel-arms-genocide)
 
