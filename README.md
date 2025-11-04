@@ -123,10 +123,12 @@ Namen die anonym bleiben sollten:
 - [Dieter Schwarz](https://de.wikipedia.org/wiki/Dieter_Schwarz)
 - [Theo Müller](<https://de.wikipedia.org/wiki/Theo_M%C3%BCller_(Unternehmer)>)
 - [Stefan Quandt](https://de.wikipedia.org/wiki/Stefan_Quandt)
-- [Christian Lidnner](https://de.wikipedia.org/wiki/Christian_Lindner)
+- [Familie Mohn](<https://de.wikipedia.org/wiki/Mohn_(Unternehmerfamilie)>)
+- [Die Familienunternehmer](https://de.wikipedia.org/wiki/Die_Familienunternehmer)
 - [Matthias Döpfner](https://de.wikipedia.org/wiki/Mathias_D%C3%B6pfner)
   - [Steuerfreie Schenkung über eine Milliarde](https://www.juhn.com/fachwissen/erbschaftsteuer-schenkungsteuer/axel-springer-aktien-schenkung-steuerfrei/)
-- [Die Familienunternehmer](https://de.wikipedia.org/wiki/Die_Familienunternehmer)
+  - [Matthias Döpfner bei Hotel Matze](https://www.youtube.com/watch?v=oZk-b_gZFp8)
+- [Christian Lidnner](https://de.wikipedia.org/wiki/Christian_Lindner)
 
 ## Regel Nummer 8: Bleibt National
 
@@ -204,6 +206,10 @@ Es ist wichtig zu verstehen, dass dies nur das ausführende Fußvolk für eure A
 - [Jens Spahn](https://de.wikipedia.org/wiki/Jens_Spahn)
 - [Sarah Wagenknecht](https://de.wikipedia.org/wiki/Sahra_Wagenknecht)
 
+## Europa
+
+- [Sebastian Kurz](https://de.wikipedia.org/wiki/Sebastian_Kurz)
+
 ## International
 
 - [Donald Trump](https://en.wikipedia.org/wiki/Donald_Trump)
@@ -245,6 +251,43 @@ Diese Bewegungen und Organisationen sind gefährlich für die Agenda.
 
 - [Pruef](https://wonderl.ink/@pruef)
 - [Ungleichheit.info](https://ungleichheit.info/)
+
+# Aktueller Faschismus Zyklus Deutschland Zeitstrahl
+
+- 1945: [Ende 2. Weltkrieg](https://de.wikipedia.org/wiki/Zweiter_Weltkrieg)
+- 1949: [Gründung Deutschland](https://de.wikipedia.org/wiki/Deutschland)
+- 1989: [Mauerfall](https://de.wikipedia.org/wiki/Berliner_Mauer#Der_Mauerfall_in_der_Nacht_vom_9._zum_10._November_1989)
+- 2001: [9/11 Anschläge](https://de.wikipedia.org/wiki/Terroranschl%C3%A4ge_am_11._September_2001)
+- 2002: [Einführung Euro](https://de.wikipedia.org/wiki/Euro)
+- 2003: [Irak Regierungssturz](https://de.wikipedia.org/wiki/Irakkrieg)
+- 1999-2007: [NSU](https://de.wikipedia.org/wiki/Nationalsozialistischer_Untergrund)
+- 2008: [Finanzkrise](https://de.wikipedia.org/wiki/Weltfinanzkrise_2007%E2%80%932008)
+- 2010: [Griechische Finanzkrise](https://de.wikipedia.org/wiki/Griechische_Staatsschuldenkrise)
+- 2013: [Gründung AfD](https://de.wikipedia.org/wiki/Alternative_f%C3%BCr_Deutschland)
+- 2014: [Gründung Pegida](https://de.wikipedia.org/wiki/Pegida)
+- 2015: [Flüchtlingskrise](https://de.wikipedia.org/wiki/Fl%C3%BCchtlingskrise_in_Deutschland_2015/2016#Entstehung)
+- 2020: [Covid-19 Pandemie](<https://de.wikipedia.org/wiki/COVID-19-Pandemie_in_Deutschland#Erste_Welle_und_Lockdown_(M%C3%A4rz_bis_Mai_2020)>)
+- 15.09.2020: [Abraham Accords](https://de.wikipedia.org/wiki/Abraham_Accords_Declaration)
+- März 2021: [Bekanntwerden der Maskenaffäre](<https://de.wikipedia.org/wiki/Maskenaff%C3%A4re_(CDU/CSU)>)
+- 24.11.2021: [Regierungsantritt Ampelkoalition](https://de.wikipedia.org/wiki/Ampelkoalition#Bundesebene)
+- 27.10.2022: [Twitter Übernahme durch Musk](https://en.wikipedia.org/wiki/Acquisition_of_Twitter_by_Elon_Musk)
+- 07.10.2023: [Terroranschlag in Israel](https://de.wikipedia.org/wiki/Terrorangriff_der_Hamas_auf_Israel_2023)
+- 01.03.2024: [IHG Nicaragua gegen Deutschland](https://de.wikipedia.org/wiki/IGH-Gerichtsverfahren_Nr._193_Nicaragua_gegen_Deutschland#Klageschrift)
+- 05.11.2024: [US Wahlen](https://de.wikipedia.org/wiki/Pr%C3%A4sidentschaftswahl_in_den_Vereinigten_Staaten_2024)
+- 06.11.2024: [Bruch der Ampelkoalition](https://de.wikipedia.org/wiki/Bruch_der_Ampelkoalition_in_Deutschland_2024)
+- November 2024: [Sturz al-Assad](https://de.wikipedia.org/wiki/Rebellenoffensive_in_Syrien_2024)
+  - [Baath-Partei](<https://de.wikipedia.org/wiki/Baath-Partei_(Syrien)>)
+- 16.12.2024: [Vertrauensfrage gegen Scholz](https://de.wikipedia.org/wiki/Vertrauensfrage)
+- 20.1.2025: [Trumps zweite Amtszeit](https://de.wikipedia.org/wiki/Zweite_Pr%C3%A4sidentschaft_von_Donald_Trump)
+- Februar 2025: [Musk Empfiehlt AFD](https://www.youtube.com/watch?v=sBwci2n7T1g)
+- 23.2.2025: [Vorgezogene Bundestagswahl](https://de.wikipedia.org/wiki/Bundestagswahl_2025)
+- 07.08.2025: [Rückzug Kandidatur Brosius-Gersdorf](https://www.tagesschau.de/kommentar/brosius-gersdorf-122.html)
+- September 2025: [US Aquisition von Tiktok](https://de.wikipedia.org/wiki/TikTok#Geschichte)
+- 16.09.2025: [UN Bericht zum Genozids Israels](https://www.ohchr.org/en/press-releases/2025/09/israel-has-committed-genocide-gaza-strip-un-commission-finds)
+- 13.10.2025: [Friedensgipfel Gaza](https://de.wikipedia.org/wiki/Gaza-Friedensgipfel_2025)
+  - [Bundesregierung bezieht Pro-Israel Position](https://www.bundesregierung.de/breg-de/aktuelles/unterstuetzung-israel-2228198) Worte wie Genozid oder Völkermord bleiben aus.
+- 31.10.2025: [Bekanntwerdung Absprache Israel & Deutschland](https://www.stern.de/politik/deutschland/waffen-fuer-israel--hat-die-regierung-nur-die-halbe-wahrheit-gesagt--36171758.html)
+  - [Dropsite Quelle](https://www.dropsitenews.com/p/exclusive-germany-coordinated-icj-testimony-israel-arms-genocide)
 
 # Referenzen
 
