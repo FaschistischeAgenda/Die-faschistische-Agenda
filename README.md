@@ -291,6 +291,7 @@ Diese Bewegungen und Organisationen sind gefährlich für die Agenda.
   - [Woidke](https://www.tagesschau.de/inland/regional/brandenburg/rbb-woidke-macht-klare-ansagen-fuer-eine-moegliche-zusammenarbeit-mit-der-afd-100.html)
 - 31.10.2025: [Bekanntwerdung Absprache Israel & Deutschland](https://www.stern.de/politik/deutschland/waffen-fuer-israel--hat-die-regierung-nur-die-halbe-wahrheit-gesagt--36171758.html)
   - [Dropsite Quelle](https://www.dropsitenews.com/p/exclusive-germany-coordinated-icj-testimony-israel-arms-genocide)
+- [CDU stimmt im Kreistag gemeinsam mit AfD](https://www.ndr.de/nachrichten/mecklenburg-vorpommern/streit-um-peenebruecke-cdu-stimmt-im-kreistag-gemeinsam-mit-afd,afd-892.html)
 
 # Referenzen
 
