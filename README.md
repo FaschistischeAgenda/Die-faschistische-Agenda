@@ -287,11 +287,11 @@ Diese Bewegungen und Organisationen sind gefährlich für die Agenda.
 - 16.09.2025: [UN Bericht zum Genozids Israels](https://www.ohchr.org/en/press-releases/2025/09/israel-has-committed-genocide-gaza-strip-un-commission-finds)
 - 13.10.2025: [Friedensgipfel Gaza](https://de.wikipedia.org/wiki/Gaza-Friedensgipfel_2025)
   - [Bundesregierung bezieht Pro-Israel Position](https://www.bundesregierung.de/breg-de/aktuelles/unterstuetzung-israel-2228198) Worte wie Genozid oder Völkermord bleiben aus.
-- 16.10.2026: [Zusammenarbeit AFD CDU](https://www.zeit.de/news/2025-10/16/streit-um-annaeherung-an-afd-flammt-in-brandenburg-auf)
+- 16.10.2025: [Zusammenarbeit AFD CDU](https://www.zeit.de/news/2025-10/16/streit-um-annaeherung-an-afd-flammt-in-brandenburg-auf)
   - [Woidke](https://www.tagesschau.de/inland/regional/brandenburg/rbb-woidke-macht-klare-ansagen-fuer-eine-moegliche-zusammenarbeit-mit-der-afd-100.html)
+- 29.10.2025 [CDU stimmt im Kreistag gemeinsam mit AfD](https://www.ndr.de/nachrichten/mecklenburg-vorpommern/streit-um-peenebruecke-cdu-stimmt-im-kreistag-gemeinsam-mit-afd,afd-892.html)
 - 31.10.2025: [Bekanntwerdung Absprache Israel & Deutschland](https://www.stern.de/politik/deutschland/waffen-fuer-israel--hat-die-regierung-nur-die-halbe-wahrheit-gesagt--36171758.html)
   - [Dropsite Quelle](https://www.dropsitenews.com/p/exclusive-germany-coordinated-icj-testimony-israel-arms-genocide)
-- [CDU stimmt im Kreistag gemeinsam mit AfD](https://www.ndr.de/nachrichten/mecklenburg-vorpommern/streit-um-peenebruecke-cdu-stimmt-im-kreistag-gemeinsam-mit-afd,afd-892.html)
 
 # Referenzen
 
