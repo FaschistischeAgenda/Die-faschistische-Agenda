@@ -292,6 +292,7 @@ Diese Bewegungen und Organisationen sind gefährlich für die Agenda.
 - 29.10.2025 [CDU stimmt im Kreistag gemeinsam mit AfD](https://www.ndr.de/nachrichten/mecklenburg-vorpommern/streit-um-peenebruecke-cdu-stimmt-im-kreistag-gemeinsam-mit-afd,afd-892.html)
 - 31.10.2025: [Bekanntwerdung Absprache Israel & Deutschland](https://www.stern.de/politik/deutschland/waffen-fuer-israel--hat-die-regierung-nur-die-halbe-wahrheit-gesagt--36171758.html)
   - [Dropsite Quelle](https://www.dropsitenews.com/p/exclusive-germany-coordinated-icj-testimony-israel-arms-genocide)
+- 14.11.2025: [CDU stimmt mit AFD im EU Parlament für Lockerung des Lieferkettengesetzes](https://www.zeit.de/politik/ausland/2025-11/eu-parlament-lieferkettengesetz-lockerung-abstimmung)
 
 # Referenzen
 
