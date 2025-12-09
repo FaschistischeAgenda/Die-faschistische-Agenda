@@ -1,4 +1,4 @@
-Der Ratgeber für alle Superreichen und die, die es werden wollen.
+Der Ratgeber für alle Überreichen und die, die es werden wollen.
 Der Weg zur Sicherung und Vermehrung von Vermögen durch Destabilisierung der Gesellschaft.
 
 # 1. Vermögens Aufbau
