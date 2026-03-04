@@ -32,7 +32,6 @@ Zur Realtität der Ungleicheit: [https://ungleichheit.info/](https://ungleichhei
 Dein Reichtum bleibt bestehen und vermehrt sich wenn das aktuelle demokratische System eine Balance zwischen den folgenden Punkten schafft.
 
 - Grundsicherung: Das Volk sollte gerade genug Geld haben, damit kein ziviler Ungehorsam entsteht.
-
   - Beispiele:
     - [Gelbwesten Bewegung](https://de.wikipedia.org/wiki/Gelbwestenbewegung)
     - [Chiles Proteste 2019–2021](https://de.wikipedia.org/wiki/Proteste_in_Chile_2019/2020)
@@ -73,12 +72,10 @@ Ihr benötgt ein riesieges Propaganda Instrument das ohne jegliche Vorstellung v
 [Presserügen](https://www.presserat.de/ruegen-presse-uebersicht.html)
 
 - [Axel Springer SE](https://de.wikipedia.org/wiki/Axel_Springer_SE)
-
   - [Die Welt](https://de.wikipedia.org/wiki/Die_Welt)
   - [Bild](<https://de.wikipedia.org/wiki/Bild_(Zeitung)>)
 
 - [Frank Gotthardt](<https://de.wikipedia.org/wiki/Frank_Gotthardt_(Unternehmer)>)
-
   - [Nius](https://de.wikipedia.org/wiki/Nius)
   - [Berliner Zeitung](https://de.wikipedia.org/wiki/Berliner_Zeitung)
 
@@ -142,7 +139,6 @@ Zeichen des Erfolgs:
 
 - Politischer Erfolg der destablisierenden Partei trotz offensichtlicher Widersprüche des eigenes Parteirogramms
   <!-- Beispiele für den Anstieg der destabilisierenden Partei -->
-
   - Pro Life während Frauenrechten untergraben werden.
   - Meinungsfreiheit aber das Verbot von geschlechterneutraler Sprache
   - [Ideologiefreie Räume fordern während](https://www.bundestag.de/dokumente/textarchiv/2025/kw23-de-beflaggung-1083662) eure Ideologie durchsetzen.
@@ -293,6 +289,9 @@ Diese Bewegungen und Organisationen sind gefährlich für die Agenda.
 - 31.10.2025: [Bekanntwerdung Absprache Israel & Deutschland](https://www.stern.de/politik/deutschland/waffen-fuer-israel--hat-die-regierung-nur-die-halbe-wahrheit-gesagt--36171758.html)
   - [Dropsite Quelle](https://www.dropsitenews.com/p/exclusive-germany-coordinated-icj-testimony-israel-arms-genocide)
 - 14.11.2025: [CDU stimmt mit AFD im EU Parlament für Lockerung des Lieferkettengesetzes](https://www.zeit.de/politik/ausland/2025-11/eu-parlament-lieferkettengesetz-lockerung-abstimmung)
+- 13.2.2026 - 15.2.2026: [Münchner Sicherheitskonferenz](https://securityconference.org/assets/02_Dokumente/01_Publikationen/2026/MSR2026/MSR_2026_Zusammenfassung.pdf)
+- 19.2.2026 - [Gründung: Board of Peace](https://en.wikipedia.org/wiki/Board_of_Peace)
+- 03.03.2026: [Merz & Trump treffen sich zum Iran Krieg](https://www.telegraph.co.uk/world-news/2026/03/02/friedrich-merz-iran-not-be-protected-international-law/)
 
 # Referenzen
 
